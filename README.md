@@ -1,0 +1,2 @@
+# MANISHIKA1024170426_UCS420
+Cognitive Computing Assignments
